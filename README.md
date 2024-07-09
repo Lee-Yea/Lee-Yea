@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on idk
 - 📫 How to reach me discord = 7acaa
 - 😄 Pronouns: a guy
-- ⚡ Fun fact: ...
+- ⚡ Fun fact: i dont like gay people
 
 <!---
 Lee-Yea/Lee-Yea is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
