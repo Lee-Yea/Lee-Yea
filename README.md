@@ -2,8 +2,8 @@
 - 👀 I’m interested in idk scriting
 - 🌱 I’m currently learning lua
 - 💞️ I’m looking to collaborate on idk
-- 📫 How to reach me ...
-- 😄 Pronouns: ...
+- 📫 How to reach me discord = 7acaa
+- 😄 Pronouns: a guy
 - ⚡ Fun fact: ...
 
 <!---
